@@ -19,8 +19,8 @@
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](www.linkedin.com/in/baian-550558227) *(add your LinkedIn)*
-- 📧 [Email](mailto:baansuluu22@gmail.com) *(add your email)*
+- 💼 [LinkedIn](www.linkedin.com/in/baian-550558227) 
+- 📧 [Email](mailto:baansuluu22@gmail.com) 
 
 ---
 
