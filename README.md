@@ -1,4 +1,3 @@
-# Baiansuluu
 # Hi, I'm Baiansuluu
 
 🎓 **Computer Science Student** | Graduating Spring 2026  
